@@ -1,3 +1,4 @@
-𓂃˖˳·˖ ִֶָ ⋆🌷͙⋆ ִֶָ˖·˳˖𓂃 ִֶָ
+ཐི ྐ❤︎ ཋྀ
 
-<img width="1200" height="1063" alt="image" src="https://github.com/user-attachments/assets/d2b02e03-c713-4fd6-9199-d95a1def76f6" />
+![BF8B9E0D-5FE2-4B12-BECD-595CAE6899AB_1_105_c](https://github.com/user-attachments/assets/7c93f096-d158-492e-8649-14ca80e5583b)
+
