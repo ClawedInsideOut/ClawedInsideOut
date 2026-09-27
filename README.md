@@ -8,7 +8,7 @@
 <img width="20" height="20" alt="heart-black" src="https://github.com/user-attachments/assets/2d6d37e6-92c1-497f-b331-17756803a84d" /> 𝐃𝐢𝐬𝐜𝐨𝐫𝐝 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 : 𝘐 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘵𝘢𝘺 𝘰𝘯 ⛔ 𝘴𝘪𝘯𝘤𝘦 𝘪'𝘮 80% 𝘰𝘧 𝘵𝘩𝘦 𝘵𝘪𝘮𝘦 𝘥𝘰𝘪𝘯𝘨 𝘴𝘰𝘮𝘦𝘵𝘩𝘪𝘯𝘨 𝘦𝘭𝘴𝘦, 𝘣𝘶𝘵 𝘺𝘰𝘶 𝘢𝘳𝘦 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘪𝘯𝘵 𝘶𝘯𝘭𝘦𝘴𝘴 𝘮𝘺 𝘴𝘵𝘢𝘵𝘶𝘴 𝘴𝘢𝘺𝘴 "𝘥𝘯𝘪". <img width="20" height="20" alt="thank-you-goth" src="https://github.com/user-attachments/assets/48835429-47ce-47a0-b08c-5b69769a6e76" />
 
 
-<img width="20" height="20" alt="heart-black" src="https://github.com/user-attachments/assets/2d6d37e6-92c1-497f-b331-17756803a84d" />  𝐏𝐨𝐧𝐲 𝐭𝐨𝐰𝐧 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 : 𝘐 𝘶𝘴𝘦𝘢𝘭𝘭𝘺 𝘴𝘵𝘢𝘺 𝘯𝘦𝘢𝘳 𝘣𝘢𝘬𝘦𝘳𝘺, 𝘥𝘸 𝘴𝘦𝘤𝘵𝘪𝘰𝘯, 𝘢𝘯𝘥 𝘱𝘢𝘳𝘵𝘺 𝘮𝘢𝘱. 🔪
+<img width="20" height="20" alt="heart-black" src="https://github.com/user-attachments/assets/2d6d37e6-92c1-497f-b331-17756803a84d" />  𝐏𝐨𝐧𝐲 𝐭𝐨𝐰𝐧 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 : 𝘔𝘰𝘴𝘵 𝘰𝘧 𝘵𝘩𝘦 𝘵𝘪𝘮𝘦𝘴 𝘯𝘦𝘢𝘳 𝘣𝘢𝘬𝘦𝘳𝘺, 𝘥𝘸 𝘴𝘦𝘤𝘵𝘪𝘰𝘯, 𝘢𝘯𝘥 𝘱𝘢𝘳𝘵𝘺 𝘮𝘢𝘱. 🔪
 ════════════════════════════════════════════════════════════════════════════════════
 ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶୨୧︶︶︶୨୧︶︶
 
