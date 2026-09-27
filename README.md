@@ -1,5 +1,5 @@
 <img width="900" height="100" alt="wings-white-wings (1)" src="https://github.com/user-attachments/assets/d3d0bc15-1c67-4e71-84ef-827721daaede" />
-
+<img width="600" height="220" alt="png-angel" src="https://github.com/user-attachments/assets/039fe4f0-f9f2-4cca-b8c4-6ce66a2e663d" />
 
 <img width="40" height="40" alt="angel-wings (1)" src="https://github.com/user-attachments/assets/0d9e0caa-bc10-4d07-967d-5f0a3d6ee3f8" /> 𝘋𝘯𝘪 𝘱𝘳𝘰𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴, 𝘥𝘢𝘳𝘬𝘴𝘩𝘪𝘱𝘱𝘦𝘳𝘴, 𝘭𝘰𝘭𝘪𝘤𝘰𝘯𝘴, 𝘧𝘪𝘤𝘵𝘪𝘰𝘯𝘬𝘪𝘯𝘴, 𝘮𝘦𝘯𝘵𝘢𝘭 𝘪𝘭𝘭𝘯𝘦𝘴𝘴 𝘭𝘢𝘳𝘱𝘴, 𝘩𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘦𝘴, 𝘱𝘳𝘦𝘥𝘢𝘵𝘰𝘳𝘴, 𝘢𝘯𝘥 𝘳𝘢𝘤𝘪𝘴𝘵𝘴 <img width="40" height="40" alt="angel-wings" src="https://github.com/user-attachments/assets/01da861a-6379-4f49-833a-df2acb3453ab" />
 
