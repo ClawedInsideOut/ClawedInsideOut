@@ -6,6 +6,6 @@
 𝘏𝘦𝘭𝘭𝘰 𝘪'𝘮 𝘊𝘭𝘢𝘸𝘦𝘥𝘐𝘯𝘴𝘪𝘥𝘦𝘖𝘶𝘵 ༝ 𝘊𝘭𝘢𝘸𝘦𝘥 ༝ 𝘊𝘭𝘢𝘸 𓂃 𝘐 𝘨𝘰 𝘣𝘺 𝘚𝘩𝘦/𝘏𝘦𝘳 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𓂃 𝘔𝘺 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘢𝘯𝘪𝘮𝘢𝘭 𝘪𝘴 𝘢 𝘱𝘪𝘨𝘦𝘰𝘯! <img width="40" height="40" alt="paloma-gif-bird" src="https://github.com/user-attachments/assets/e3d45c2b-0457-41b8-bc58-15db15b5276e" />
 
 
-<img width="20" height="20" alt="heart-black" src="https://github.com/user-attachments/assets/2d6d37e6-92c1-497f-b331-17756803a84d" />  𝐏𝐨𝐧𝐲 𝐭𝐨𝐰𝐧 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 :  
+<img width="20" height="20" alt="heart-black" src="https://github.com/user-attachments/assets/2d6d37e6-92c1-497f-b331-17756803a84d" />  𝐏𝐨𝐧𝐲 𝐭𝐨𝐰𝐧 𝐫𝐞𝐥𝐚𝐭𝐞𝐝 : 𝘐 𝘶𝘴𝘦𝘢𝘭𝘭𝘺 𝘴𝘵𝘢𝘺 𝘯𝘦𝘢𝘳 𝘣𝘢𝘬𝘦𝘳𝘺, 𝘥𝘸 𝘴𝘦𝘤𝘵𝘪𝘰𝘯, 𝘢𝘯𝘥 𝘱𝘢𝘳𝘵𝘺 𝘮𝘢𝘱. 
 
 <img width="1200" height="700" alt="28DEB231-2238-4942-A0D7-2533C3421A32" src="https://github.com/user-attachments/assets/f0711b49-fecc-4146-8f85-85a9fef3e0e1" />
